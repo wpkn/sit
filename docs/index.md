@@ -10,7 +10,7 @@ keywords: 新加坡理工大学毕业证, SIT毕业证, 新加坡SIT学位证, S
 
 在传统观念中，提及新加坡的公立大学，大众往往首先想到国大（NUS）和南大（NTU）。然而，近年来在新加坡本地乃至全球跨国企业中，**新加坡理工大学（Singapore Institute of Technology，简称 SIT）毕业证的含金量与企业认可度正在迎来爆发式增长**。
 
-![新加坡理工大学毕业证样本及学位证文凭样本模版(Singapore Institute of Technology Diploma/Certificate of Degree)](sit-diploma.jpg)
+![新加坡理工大学毕业证及学位证文凭样本模版(Singapore Institute of Technology Diploma/Certificate of Degree)](sit-diploma.jpg)
 
 作为新加坡政府于2009年设立的第五所公立大学，SIT 自诞生之初就肩负着独特的使命——主打**“应用型学习”（Applied Learning）**。它不仅紧密对接新加坡未来经济转型（如人工智能、智能制造、可持续建筑、金融科技等），更通过与全球顶尖名校（如英国格拉斯哥大学、纽卡斯尔大学等）开设联合学位（Joint Degree）。
 
